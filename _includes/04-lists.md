@@ -1,4 +1,7 @@
-My favorite dog breeds :dog:
-- Dobermans
-- Bulldogs
-- Borzoi
+New hobbies: 
+- Coding
+- Knitting
+- Sewing
+- Stamp making
+- Calligraphy
+- Pickleball
